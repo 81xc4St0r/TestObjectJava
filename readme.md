@@ -1,1 +1,1 @@
-i hate github
+Github is shit - fck github
